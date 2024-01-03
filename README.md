@@ -8,8 +8,6 @@ Win79 APP - là website cung cấp link truy cập, link tải chính chủ vào
 
 - Keyword: win79, tai win79, link tải win79, win79 club
 
-https://win79apk.com/
-
 https://win79apk.com/game-bai-poker-win79-huong-dan-co-ban-va-meo-choi-hay
 
 https://win79apk.com/huong-dan-rut-tien
